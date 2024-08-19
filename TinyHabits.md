@@ -53,13 +53,13 @@ To make a habit harder, you would likely:
 - **Schedule reading time:** Dedicate specific time blocks for reading.
 - **Keep books visible:** Place books in prominent areas like the bedside table or living room.
   **Make the habit attractive:**
-- **Choose engaging books:**Select genres or topics that genuinely interest me.
+- **Choose engaging books:** Select genres or topics that genuinely interest me.
 - **Reward myself:** Treat myself to a cup of tea or a quiet environment while reading.
   **Make the habit easy:**
-- **Carry a book:**Always have a book on hand for unexpected free time.
+- **Carry a book:** Always have a book on hand for unexpected free time.
 - **Use audiobooks:** Listen to books while commuting or doing chores.
   **Make the reward satisfying:**
-- **Track reading progress:**Use a reading journal or app to monitor my reading goals.
+- **Track reading progress:** Use a reading journal or app to monitor my reading goals.
 - **Join a book club:** Discuss books with others to gain new perspectives.
 
 ## 9. Pick one habit that you would like to eliminate or do less of? What are the steps that you can take to make it make the cue invisible or the process unattractive or hard or the response unsatisfying?
